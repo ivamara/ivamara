@@ -1,4 +1,4 @@
-                                                               𝖖𝖚𝖊𝖒 𝖊𝖚 𝖘𝖔𝖚 ?
+                                                             👽  𝖖𝖚𝖊𝖒 𝖊𝖚 𝖘𝖔𝖚 ?
  Eu sou ivamara chrisostomo tenho 18 anos , estudo no colejo Sully da rosa vilarinho e  moro em Pontal do sul (PR)...
 sou uma pessoa extrovertida , e tento no maximo ser verdadeira com as coisas .
 
