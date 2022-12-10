@@ -1,4 +1,15 @@
-                                                             😜 𝖖𝖚𝖊𝖒 𝖊𝖚 𝖘𝖔𝖚 ?
+ ![Thumbnail youtube tour apartamento vídeo boho marrom aesthetic](https://user-images.githubusercontent.com/118578620/206821770-01782f02-2ec8-4eeb-ab79-72591e49ebdf.gif)
+                                      
+                                                            
+                                                            
+                                                            
+                                                            
+                                                            
+                                                            
+                                                            
+                                                            
+                                                            😜 𝖖𝖚𝖊𝖒 𝖊𝖚 𝖘𝖔𝖚 ?
+                                                       
  Eu sou ivamara chrisostomo tenho 18 anos , estudo no colejo Sully da rosa vilarinho e  moro em Pontal do sul (PR)...
 sou uma pessoa extrovertida , e tento no maximo ser verdadeira com as coisas .
 
